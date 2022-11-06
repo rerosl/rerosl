@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @rerosl
+- 👀 I’m interested in creative ways to improve out days on earth.
+- 🌱 I’m currently learning to live like a TRUE father. (Ps. Python, Ruby). 
+- 💞️ I’m looking to collaborate on great ideas that worth our precious time.
+- 📫 How to reach me dm to rslio@proton.me
